@@ -52,7 +52,7 @@ I highly recommend Naruto to people who enjoy action and adventure anime. It is 
 | Creator | Masashi Kishimoto |
 | Animation Studio | Studio Pierrot |
 | Number of Episodes | 220 |
-| Genre | Action, Adventure, Fantasy |
+| Genre | Action, Adventure, Fantasy, and Martial Arts |
 | Country | Japan |
 | Language | Japanese |
 
